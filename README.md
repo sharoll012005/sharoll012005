@@ -1,8 +1,9 @@
-Hi, I'm sharoll hernandez
-I'm 21 years old ( born in 2005)
-I'm from barranquilla, atlantico
-I'm trained in commercial advisory from the sena (2021-2022), and technologist program in internacional business ( 2023-2025)
-I'm experienced with 6 months of payroll practice at VIP GLOBAL, where I handled scheduling for temporary and permanent staff
+Hi, I'm sharoll hernandez.
+
+I'm 21 years old ( born in 2005),
+I'm from Barranquilla, Atlantico,
+I'm trained in commercial advisory from the sena (2021-2022), and technologist program in international business ( 2023-2025)
+I'm experienced with 6 months of payroll practice at VIP GLOBAL, where I handled scheduling for temporary and permanent staff,
 I'm currently learning programming at Riwi.
 My passions are anime, games, and medieval manhwas.
 
